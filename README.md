@@ -1,0 +1,9 @@
+- Hi, I am Shrestha Bhattacharjee
+- An old fashioned teenager 
+- I’m currently working hard for clearing NTSE
+- Exploring ways to make people admire INDIA
+- An enthusiast of biology and physics
+- I wanna make my way on medical field 
+- You can contact me on ~ sbhattacharjess40@gmail.com 
+- I like both listening and singing 
+- I have the fear of god
